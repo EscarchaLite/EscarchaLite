@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @EscarchaLite, and I'm from Spain
+- 👀 I’m interested in programming, history, literature, linguistics and old computers.
+- 🌱 I’m currently in high school, and when I'm not in I like to play videogames, program, learn about history and write. 
+- 💞️ I’m looking to collaborate on not much, because I'm not very good.
+- 📫 You can reach me through email at mateogalanlopez@protonmail.com, or through my reddit profile TUIATBDA.
